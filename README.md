@@ -1,1 +1,1 @@
-# rs_school-cv
+https://mary190183.github.io/rs_school-cv/cv
